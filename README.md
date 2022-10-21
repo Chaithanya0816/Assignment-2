@@ -1,1 +1,1 @@
-"C:\Users\chnp0\Documents\zoom\2022-10-20 20.17.33 chaithanya reddy's zoom meeting\video1146757868.mp4"
+https://drive.google.com/file/d/1OKNUWVerBqMHNMK55nRG8Z_Xz0qtBFgD/view?usp=drivesdk
